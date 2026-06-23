@@ -7,6 +7,12 @@
     
 ![](https://komarev.com/ghpvc/?username=TAIY0UKEIDISCO&style=plastic&label=cheesecakes&color=FDA05E)
 
+
+<p align="center">
+  <a 
+
+*old/in middle of rmking*
+
 <p align="center">
   <a 
 
